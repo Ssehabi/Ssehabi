@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **sirinesehabi@gmail.com**
 
-- ⚡ Fun fact **I think I'm ambitious and positive person**
+- ⚡ Fun fact **I'm ambitious and positive person**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
